@@ -1,4 +1,4 @@
-Ph.D., Medical Physics Resident PGY-1
+Ph.D., Medical Physics Resident PGY-2
 
 Department of Radiation Oncology
 
