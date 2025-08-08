@@ -1,4 +1,4 @@
-Ph.D., Medical Physics Resident PGY-2
+Ph.D., Assistant Professor
 
 Department of Radiation Oncology
 
