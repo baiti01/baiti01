@@ -1,4 +1,4 @@
-Ph.D., Assistant Professor
+Ph.D., Assistant Professor, DABR
 
 Department of Radiation Oncology
 
